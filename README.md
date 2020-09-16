@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... mraryan.ag@gmail.com || https://www.linkedin.com/in/aryan-gupta16/
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... The root is at the top of the tree
+- ⚡ Fun fact: ... I am a Big Foodie
 
